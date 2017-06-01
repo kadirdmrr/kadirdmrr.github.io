@@ -1,8 +1,8 @@
-                                              SPORTWETTEN-QUOTEN
+	                                              SPORTWETTEN-QUOTEN
 										
-								                        Sichere Tipps & Gewinne - 100%
+						Sichere Tipps & Gewinne - 100%
 								  
-								                                Top Spiele:
-								                    ... Real Madrid - Juventus Turin ...
+							Top Spiele:
+					     ... Real Madrid - Juventus Turin ...
 								
 										 
